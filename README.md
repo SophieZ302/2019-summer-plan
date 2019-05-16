@@ -4,7 +4,8 @@
 
 5/14 周二： 酿豆腐, 桑叶汤  </br>
 5/15 周三： 肠粉，艇仔粥，烧鹅，鲍鱼，玉米靓汤，鲜虾
-
+5/16 周四： 皮蛋瘦肉粥，煎饼果子 
+            换汇： sophie-500USD  yixing-100USD  -> 日元： 60,000 
 
 #### 日本：
 交通攻略 http://www.mafengwo.cn/gonglve/ziyouxing/127.html
